@@ -49,6 +49,7 @@ Forget the drek-infested dregs of the datastream, chummer! Dive into the neon la
 * **r/Cyberpunk:** https://www.reddit.com/r/cyberpunkgame/
 * **r/Shadowrun:** https://www.reddit.com/r/Shadowrun/
 * **r/Cyberpunk2077:** https://www.reddit.com/r/cyberpunkgame/
+* **r/Edgerunners:** https://www.reddit.com/r/edgerunners/
 
 **Cyberpunk blogs & websites:**
 
